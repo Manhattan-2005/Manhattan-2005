@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Manhattan-2005
+- 👀 I’m interested in Software Development
+- 🌱 I’m currently learning Diploma in Computer Science 
+- 💞️ I’m looking to collaborate on any software skills
+- 📫 How to reach me risenlegend2005@gmail.com
